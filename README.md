@@ -10,7 +10,7 @@
 
 <br>
 
-![Resultado final do projeto](https://user-images.githubusercontent.com/128244805/233354690-91a55221-89e3-419d-a9d5-71a248dd6beb.png)
+![Resultado final do projeto](https://media.discordapp.net/attachments/1088112544905969736/1099114491347750912/image.png?width=1058&height=595)
 
 <br>
 
